@@ -1,6 +1,6 @@
 # Sobre mim
 
-- 👋 Belle Belinha supremacy
+-
 
 
 <!---
